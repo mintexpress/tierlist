@@ -1,3 +1,3 @@
 # tierlist
 
-https://hentaihaven.xxx/
+https://hentaimama.io/
