@@ -1,3 +1,3 @@
 # tierlist
 
-https://watchhentai.net/
+https://hentaihaven.xxx/
