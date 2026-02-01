@@ -1,3 +1,3 @@
 # tierlist
 
-https://hanime.tv/
+https://watchhentai.net/
