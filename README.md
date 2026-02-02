@@ -1,3 +1,3 @@
 # tierlist
 
-https://hentaimama.io/
+
